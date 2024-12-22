@@ -9,5 +9,5 @@ i am not responsible for blackhat used of this nor do i care at all if your flip
 
 in the sub gighz file
 
-if you want to buy me tesco meal deal here's my paypal 
-https://paypal.me/MrKalCyrus?country.x=GB&locale.x=en_GB
+if you want to buy me tesco meal deal DM on discord and I'll say thank you personally 
+onelikekal
